@@ -1,2 +1,1 @@
-crack by JournalTrace & Librry
-dsc.gg/ourgodz
+🤩getted bst prot🤩
